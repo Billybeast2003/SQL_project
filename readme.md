@@ -1,0 +1,1 @@
+![Alt text](Queries_images/Screenshot from 2024-08-24 18-43-05.png)
